@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> في عيونك أرى سحر هذا المساء
+> ونار الشوق تكوي قلبي الولهان
+> بين يديك أنسى كل العناء
+> حبك يسري في دمي كالإدمان
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
